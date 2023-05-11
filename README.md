@@ -1,0 +1,2 @@
+# sattarIstighfat
+New duas app
